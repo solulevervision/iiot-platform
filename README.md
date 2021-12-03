@@ -1,0 +1,2 @@
+# iiot-platform
+ We deliver unique Edge platform, industry-specific solutions and services that simplify the digital manufacturing transformations. We are passionate about bringing the power of ‘Data at Speed’ to manufacturing and about bringing ‘Beauty’ to manufacturing systems. We deliver the promise of digital manufacturing through ‘Continuous Value Realization Programs’ leveraging our Edge platform and solutions.  https://solulever.com/#/brabo
